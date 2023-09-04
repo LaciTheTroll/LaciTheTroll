@@ -1,1 +1,1 @@
-co-ceo
+ceo
